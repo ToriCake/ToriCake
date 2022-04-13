@@ -8,8 +8,6 @@ My Discord: BellaButton1995#7291
 
 Some Fandoms I'm in: FNAF, HTF, Gorillaz, Marvel Universe, Disney/Pixar, Arcane, A TON of anime and so on!
 
-Characters I kin: Glamrock Bonnie and Cuddles![Minus the gore parts.]
-
 Please interact if: We have the same interests, we're friends, you support DID/TT/TD, you're friends of my friends, you want to learn Spanish, you're on the 18+ server on Pony Town, You are 18+, support the LGBTQ+, support Ukraine, support Free Britney, enjoy dark humor[to an extent.], etc.
 
 Do NOT interact if: Racist/Xenophobic, Transphobic/Homophobic, Do NOT support TT/TD/DID, make fun of people with mental disorders/disabilities, sexist, radical feminist, support DreamSMP[Unless you're my friend and support them.], zoophile/support bestiality, make r8pe jokes, support abuse in any way, pedophile, etc.
