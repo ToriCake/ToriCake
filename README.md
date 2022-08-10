@@ -4,7 +4,7 @@ DO NOT COPY ANY OF MY SKINS ON PONYTOWN! I WILL IMMEDIATELY WARN OTHER PEOPLE AB
 
 Some of my friends on Pony Town: Bug/Xen, Ellie, DezPez, Doppio/Mochii, Tetra, etc.
 
-My Discord: BellaButton1995#7291
+My Discord: ToriCake#7291
 
 Some Fandoms I'm in: FNAF, HTF, Gorillaz, Marvel Universe, Disney/Pixar, Arcane, A TON of anime and so on!
 
