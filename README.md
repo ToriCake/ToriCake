@@ -1,10 +1,10 @@
-Hello! I'm Bella/Tori/Victoria! This is my Patreon page, and I hope you enjoy it! Over time I will edit this, so you'll get a better understanding of who I am. Please do NOT send me money. I don't need it. If you're here, you're either from Pony Town or Discord! I'm currently 26 years old, and my birthday is on August 14th! I'm a pansexual genderfluid person, and I DO NOT use neopronouns. I go by she her/and he/him! I am Puerto Rican/American! 😘
+Hello! I'm Bella/Tori/Victoria! This is my Patreon page, and I hope you enjoy it! Over time I will edit this, so you'll get a better understanding of who I am. If you're here, you're either from Pony Town or Discord! I'm currently 27 years old, and my birthday is on August 14th! I'm a pansexual genderfluid person, and I DO NOT use neopronouns. I go by she her/and he/him! I am Puerto Rican/American! 😘
 
 DO NOT COPY ANY OF MY SKINS ON PONYTOWN! I WILL IMMEDIATELY WARN OTHER PEOPLE ABOUT YOU AND HIDE YOU! INSPO IS OKAY, BUT NO COPYING!! ALSO FANART IS FINE! PLEASE SEND THE FANART TO MY DISC PLEASE! ❤️
 
 Some of my friends on Pony Town: Bug/Xen, Ellie, DezPez, Doppio/Mochii, Tetra, etc.
 
-My Discord: ToriCake#7291
+My Discord and where my other socials are: ToriCake#7291
 
 Some Fandoms I'm in: FNAF, HTF, Gorillaz, Marvel Universe, Disney/Pixar, Arcane, A TON of anime and so on!
 
