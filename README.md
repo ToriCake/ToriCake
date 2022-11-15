@@ -1,4 +1,4 @@
-Hello! I'm Bella/Tori/Victoria! This is my Patreon page, and I hope you enjoy it! Over time I will edit this, so you'll get a better understanding of who I am. If you're here, you're either from Pony Town or Discord! I'm currently 27 years old, and my birthday is on August 14th! I'm a pansexual genderfluid person, and I DO NOT use neopronouns. I go by she her/and he/him! I am Puerto Rican/American! 😘
+Hello! I'm Bella/Tori/Victoria! This is my GitHub page, and I hope you enjoy it! Over time I will edit this, so you'll get a better understanding of who I am. If you're here, you're either from Pony Town or Discord! I'm currently 27 years old, and my birthday is on August 14th! I'm a pansexual genderfluid person, and I DO NOT use neopronouns. I go by she her/and he/him! I am Puerto Rican/American! 😘
 
 DO NOT COPY ANY OF MY SKINS ON PONYTOWN! I WILL IMMEDIATELY WARN OTHER PEOPLE ABOUT YOU AND HIDE YOU! INSPO IS OKAY, BUT NO COPYING!! ALSO FANART IS FINE! PLEASE SEND THE FANART TO MY DISC PLEASE! ❤️
 
