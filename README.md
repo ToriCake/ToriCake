@@ -1,5 +1,7 @@
 Hello! I'm Bella/Tori/Victoria! This is my GitHub page, and I hope you enjoy it! Over time I will edit this, so you'll get a better understanding of who I am. If you're here, you're either from Pony Town or Discord! I'm currently in my 20s and my birthday is on August 14th! I'm a pansexual genderfluid person, and I DO NOT use neopronouns. I go by she her/and he/him! I am Puerto Rican/American! 😘
 
+ASK ME ABOUT MY FNAF AU I'S REALLY CUTE AND INCLUSIVE TO THE LGBT =3
+
 DO NOT COPY ANY OF MY SKINS ON PONYTOWN! I WILL IMMEDIATELY WARN OTHER PEOPLE ABOUT YOU AND HIDE YOU! INSPO IS OKAY, BUT NO COPYING!! ALSO FANART IS FINE! PLEASE SEND THE FANART TO MY DISC PLEASE! ❤️
 
 Some of my friends on Pony Town: Bug/Xen, Ellie, DezPez, Doppio/Mochii, Tetra, etc.
