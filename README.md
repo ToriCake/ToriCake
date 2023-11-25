@@ -6,7 +6,7 @@ DO NOT COPY ANY OF MY SKINS ON PONYTOWN UNLESS WE'RE CLOSE! I WILL IMMEDIATELY W
 
 Some of my friends on Pony Town: Geo/Bug/Coco, Elly, Jeremy/Hobie, Springbonnie, Blaze, 2D , Doppio/Mochii, Tetra, etc.
 
-My Discord and where my other socials are: ToriCake#7291
+My Discord and where my other socials are: toricake_95
 
 Some Fandoms I'm in: FNAF, HTF, Gorillaz, Marvel Universe, Disney/Pixar, Arcane, A TON of anime and so on!
 
