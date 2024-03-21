@@ -4,7 +4,7 @@ ASK ME ABOUT MY FNAF AU IT'S REALLY CUTE AND INCLUSIVE TO THE LGBT. =3
 
 DO NOT COPY ANY OF MY SKINS ON PONYTOWN UNLESS WE'RE CLOSE! I WILL IMMEDIATELY WARN OTHER PEOPLE ABOUT YOU AND HIDE YOU! INSPO IS OKAY, BUT NO COPYING!! ALSO FANART IS FINE! PLEASE SEND THE FANART TO MY DISC PLEASE! ❤️
 
-Some of my friends on Pony Town: Geo/Bug/Coco, Elly, Jeremy/Hobie, Springbonnie, Blaze, 2D , Doppio/Mochii, Tetra, etc.
+Some of my friends on Pony Town: Geo/Bug/Coco, Doppio/Mochii, Tetra, etc.
 
 My Discord and where my other socials are: toricake_95._
 
